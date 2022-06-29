@@ -1,6 +1,1 @@
-# testTaskFiveSystemsTraineeIOSDevelope
-# testTaskFiveSystemsTraineeIOSDevelope
-# testTaskFiveSystemsTraineeIOSDevelope
-# testTaskFiveSystemsTraineeIOSDevelope
-# testTaskFiveSystemsTraineeIOSDevelope
-# testTaskFiveSystemsTraineeIOSDevelope
+
